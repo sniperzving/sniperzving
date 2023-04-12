@@ -3,7 +3,7 @@
 
  ✨Welcome to my profile ✨ 
 
-- 🌱🔭 I’m an IT project manager but currently updating my technical skills in new technologies.
+ 🌱🔭 I’m an IT project manager but currently updating my technical skills in new technologies.
 
 
 
